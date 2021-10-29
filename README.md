@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning nothing 😭😭😭
 - 💞️ I’m looking to collaborate on 🤷‍♂️
 - 📫 How to reach me "evgameryt@yahoo.com"
+ 
